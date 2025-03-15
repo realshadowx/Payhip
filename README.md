@@ -1,5 +1,7 @@
 # Payhip Coupons 2025 - Get 50% Discount Code 🔥
 
+Hello folks, Amir here.
+
 Payhip is offering some amazing coupon codes in 2025.
 
 This is your chance to grab a [50% discount](https://payhip.com/?fp_ref=shadow) and save on your next purchase or subscription plan.
