@@ -10,7 +10,7 @@ This is your chance to grab a [50% discount](https://payhip.com/?fp_ref=shadow) 
 
 Claim 75% discount on Payhip subscriptions by using the coupon code. This is a limited-time site-wide offer, claim it now.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfdHjkBIYagXJyGHcUChVC6jVFN-YGWpyjGcv9-eQDxj-DcdLOVlJBNYm4qtXE5B0W5Q2zaSOpuopuDLJUgFWHqoU3ZCao-cBwg4UhcBBWe2IhMqPjkXItyacG-voDECQtfkEuD2w?key=s9008L47zYSHAJy0669MibwK)](https://payhip.com/?fp_ref=shadow)
+[![Discount button](https://github.com/user-attachments/assets/1b03a973-a851-4f99-9e53-329efaaf5827)](https://payhip.com/?fp_ref=shadow)
 
 ## Top Payhip Coupon Codes for 2025
 
@@ -37,7 +37,7 @@ Claim 75% discount on Payhip subscriptions by using the coupon code. This is a l
 
 These are just a few of the best deals Payhip is offering in 2025. With these exclusive coupons, you can get started on the platform for less, save on your favorite digital products, and even enjoy free shipping on certain items!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfdHjkBIYagXJyGHcUChVC6jVFN-YGWpyjGcv9-eQDxj-DcdLOVlJBNYm4qtXE5B0W5Q2zaSOpuopuDLJUgFWHqoU3ZCao-cBwg4UhcBBWe2IhMqPjkXItyacG-voDECQtfkEuD2w?key=s9008L47zYSHAJy0669MibwK)](https://payhip.com/?fp_ref=shadow)
+[![Discount button](https://github.com/user-attachments/assets/1b03a973-a851-4f99-9e53-329efaaf5827)](https://payhip.com/?fp_ref=shadow)
 
 ## How to Redeem Payhip Coupon Codes?
 
@@ -53,7 +53,7 @@ Redeeming your Payhip coupon is easy and straightforward. Just follow these simp
 
 With this simple process, you can save big on your next Payhip purchase or subscription plan.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfdHjkBIYagXJyGHcUChVC6jVFN-YGWpyjGcv9-eQDxj-DcdLOVlJBNYm4qtXE5B0W5Q2zaSOpuopuDLJUgFWHqoU3ZCao-cBwg4UhcBBWe2IhMqPjkXItyacG-voDECQtfkEuD2w?key=s9008L47zYSHAJy0669MibwK)](https://payhip.com/?fp_ref=shadow)
+[![Discount button](https://github.com/user-attachments/assets/1b03a973-a851-4f99-9e53-329efaaf5827)](https://payhip.com/?fp_ref=shadow)
 
 ## Payhip Pricing Breakdown
 
@@ -67,7 +67,7 @@ With the 50% off coupon (PAYHIP50), you can enjoy the Basic Plan for just $14.50
 
 Additionally, with the NEWYEAR15 coupon, you can save 15% on any digital product you purchase on Payhip. For example, if you’re buying an eBook worth $20, you’ll only pay $17!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfdHjkBIYagXJyGHcUChVC6jVFN-YGWpyjGcv9-eQDxj-DcdLOVlJBNYm4qtXE5B0W5Q2zaSOpuopuDLJUgFWHqoU3ZCao-cBwg4UhcBBWe2IhMqPjkXItyacG-voDECQtfkEuD2w?key=s9008L47zYSHAJy0669MibwK)](https://payhip.com/?fp_ref=shadow)
+[![Discount button](https://github.com/user-attachments/assets/1b03a973-a851-4f99-9e53-329efaaf5827)](https://payhip.com/?fp_ref=shadow)
 
 ## About Payhip
 
