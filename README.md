@@ -10,7 +10,7 @@ This is your chance to grab a [50% discount](https://payhip.com/?fp_ref=shadow) 
 
 Claim 75% discount on Payhip subscriptions by using the coupon code. This is a limited-time site-wide offer, claim it now.
 
-[![Discount button](https://github.com/user-attachments/assets/1b03a973-a851-4f99-9e53-329efaaf5827)](https://payhip.com/?fp_ref=shadow)
+[![New Project (38)](https://github.com/user-attachments/assets/ee917886-3b9b-4852-9527-bcb0fc95bb37)](https://payhip.com/?fp_ref=shadow)
 
 ## Top Payhip Coupon Codes for 2025
 
